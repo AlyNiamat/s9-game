@@ -13,7 +13,7 @@ The S9 game offers exciting features for making money online. Every user can eas
 
 **Different Games**
 Play Different Games with many players
-There are lots of different games to play online. [S9 Game](https://s9game.pk) includes Teen Patti, 7 UP Down, Roulette, lines, Crash, Black Jack, Ludo, Dragon Tiger, Wingo Lottery, MoneyComing, Car Roulette, The Black Reds, Andar Bahar, Fruit Party, and more.
+There are lots of different games to play online. S9 Game [Zula Casino](https://zulacasino.cc) includes Teen Patti, 7 UP Down, Roulette, lines, Crash, Black Jack, Ludo, Dragon Tiger, Wingo Lottery, MoneyComing, Car Roulette, The Black Reds, Andar Bahar, Fruit Party, and more.
 
 **Collect Bonuses**
 Get Different Bonuses, Rewards, & Promotions
